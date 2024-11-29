@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Aut1st1ch 
 - 👀 I’m interested in)))esf
 - 🌱 I’m currently learning ...
-- 📫 How to reach me ...
+- 📫 How to reach me .pqpsoskams
 - 😄 Pronouns: ...frfrbghjhdc))j(*78hf
 - ⚡ Fun fact: .
 ---
