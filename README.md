@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Aut1st1ch 
 - 👀 I’m interested in)))esf
 - 🌱 I’m currently learning ...ydnyttyt
-- 📫 How to reach me .ugiktfgdzrgfg
+- 📫 How to reach me .hlytgifyhkyugh
 - 😄 Pronouns: ...bgfdewgrfb
 - ⚡ Fun fact: .
 ---
