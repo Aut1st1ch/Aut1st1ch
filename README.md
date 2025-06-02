@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Aut1st1ch 
 - 👀 I’m interested in)))esf
-- 🌱 I’m currently learning ...dswedrfghjk
+- 🌱 I’m currently learning ...gfdsertyui
 - 📫 How to reach me .basgfvregw
 - 😄 Pronouns: ...bgfdewgrfb
 - ⚡ Fun fact: .
