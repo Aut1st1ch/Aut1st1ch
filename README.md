@@ -2,7 +2,7 @@
 - 👀 I’m interested in)))esf
 - 🌱 I’m currently learning ...dsetrytghui
 - 📫 How to reach me .basgfvregw
-- 😄 Pronouns: ...bgfdewgrfb
+- 😄 Pronouns: ...kjudghjnfdyh
 - ⚡ Fun fact: .
 ---
 Aut1st1ch/Aut1st1ch is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
